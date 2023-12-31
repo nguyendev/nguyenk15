@@ -10,7 +10,7 @@ Anh đã đạt được nhiều thành tựu đáng kể, bao gồm việc tạ
 
 Với kiến thức đa lĩnh vực và tâm huyết vào công việc, Nguyên Nguyễn đang trở thành một nguồn cảm hứng và ảnh hưởng lớn đối với cộng đồng trực tuyến cũng như người dùng trên khắp thế giới.
 
-Hiện nay anh đã thành lập công ty [url="https://solanndigital.com"]Solann Digital chuyên về dịch vụ backlink & seo[/url]
+Hiện nay anh đã thành lập công ty [Solann Digital chuyên về dịch vụ backlink & seo](https://solanndigital.net).
 
 
 
